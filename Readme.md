@@ -15,3 +15,13 @@ surgindo um novo eu no futuro.
 O importante é não desistir. Ninguém disse que seria fácil não é mesmo?!!!
 
 
+O curso do Willian Justen de Vasconcellos me ajudou muito nesse percurso da minha vida.
+
+Com um curso excelente e GRATUITO, ajudou e ainda ajuda muitos estudantes nesse jornada
+no mundo da tecnologia.
+
+Deixo aqui o link do curso para quem se interessar: https://www.udemy.com/course/git-e-github-para-iniciantes/
+
+<h3>Super recomendo esse curso!!!</h3>
+
+É isso ai pessoal VAMOS ESTUDAR!!!!
