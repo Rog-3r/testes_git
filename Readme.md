@@ -4,7 +4,7 @@
 
 Não é um bicho de sete cabeças, é bem simples para ser sincero.
 
-A constância nessa caso é muito importante. Há um ditado "a prática 
+A constância nesse caso é muito importante. Há um ditado que diz "a prática 
 leva a perfeição".
 
 Sendo assim podemos ver que se tratando da área da tecnologia, programando
