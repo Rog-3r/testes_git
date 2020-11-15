@@ -12,6 +12,6 @@ computadores e aprendendo novas tecnologias devemos sempre estar estudando. Nos
 capacitar é travar uma batalha com sigo mesmo, deixando o velho eu para trás e
 surgindo um novo eu no futuro.
 
-O importante é não desistir. Ninguém disse que seria fácil não é mesmo?.
+O importante é não desistir. Ninguém disse que seria fácil não é mesmo?!!!
 
 
